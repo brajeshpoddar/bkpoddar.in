@@ -125,6 +125,6 @@ Javascript Files:
 --------------------------------------------------------------------------------------------------------- 
 
 
-Thanks for downloading from Styleshout go ahead:)
+Thanks for downloading from Styleshout go ahead xxxxx:)
   
 
